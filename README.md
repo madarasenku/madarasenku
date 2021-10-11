@@ -1,0 +1,3 @@
+-Hi, I’m SENKU
+-I’m currently learning HTML CSS JAVASCRIPT PHP SQL & PYTHON
+-I WANT TO LEARN FROM YOU
